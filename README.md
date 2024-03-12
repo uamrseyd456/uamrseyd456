@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @umarsyed
 - 👀 I’m interested in helping people to find their dream job
-- 🌱 I’m currently learning Recruitment
+- 🌱 I’m currently working as a Senior Recruitmeent Consultant
 - 💞️ I’m looking to collaborate on daily basics
 - 📫 How to reach me umar.ithr@gmail.com
 - 😄 Pronouns: umar

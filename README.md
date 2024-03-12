@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Recruitment
 - 💞️ I’m looking to collaborate on daily basics
 - 📫 How to reach me umar.ithr@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: umar
 - ⚡ Fun fact: Peace with me
 
 <!---
